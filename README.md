@@ -3,4 +3,4 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/theatu1sin9h](https://github.com/theatu1sin9h)
 
-- 📫 How to reach me **singhatul37186@gmail.com**
+- 📫 How to reach me **myself.tas03@gmail.com**
